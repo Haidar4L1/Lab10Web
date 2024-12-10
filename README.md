@@ -1,1 +1,1 @@
-belum di implementasiin ko kodingan sebelumnya pak 🙏
+belum di implementasiin ke kodingan sebelumnya pak 🙏
